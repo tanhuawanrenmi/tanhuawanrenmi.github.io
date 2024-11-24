@@ -6,6 +6,7 @@ header-style: text
 catalog:      true
 tags:
     - 胖子工作室探花
+    - 图文故事
 ---
 
 ## 背景
