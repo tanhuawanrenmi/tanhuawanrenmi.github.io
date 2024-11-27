@@ -75,7 +75,7 @@ ga_domain: huangxuan.me
 # Sidebar settings
 sidebar: true # whether or not using Sidebar.
 sidebar-about-description: "国产和他的朋友们"
-sidebar-avatar: https://github.com/tanhuawanrenmi/MyImg/blob/main/Img/header.png?raw=true # use absolute URL, seeing it's used in both `/` and `/about/`
+sidebar-avatar: https://tanhuawanrenmigroup.top/header.png?raw=true # use absolute URL, seeing it's used in both `/` and `/about/`
 
 # Featured Tags
 featured-tags: true # whether or not using Feature-Tags
@@ -91,6 +91,6 @@ page-mathjax: false
 # Friends
 friends:
   [
-    { title: "电报频道✈️国产和他的朋友们", href: "https://t.me/+JKmf8UWi6dQxMjI0" }
+    { title: "✈️国产和他的朋友们电报会员群", href: "https://t.me/guochanshouhushenbot" }
    
   ]
