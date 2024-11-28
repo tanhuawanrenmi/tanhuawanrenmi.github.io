@@ -5,7 +5,7 @@ header-img: img/home-bg.jpg
 email: tanhuawanrenmi@gmail.com
 description: "探花万人迷"
 keyword: "探花"
-url: "https://tanhuawanrenmi.github.io" # your host, for absolute URL
+url: "https://www.tanhuawanrenmionline.help" # your host, for absolute URL
 baseurl: "" # for example, '/blog' if your blog hosted on 'host/blog'
 
 # Publish posts or collection documents with a future date.
