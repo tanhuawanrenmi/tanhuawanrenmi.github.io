@@ -69,8 +69,8 @@ netease_comment: false
 # ba_track_id: [your track id]
 
 # Google Analytics
-ga_track_id: "UA-49627206-1" # Format: UA-xxxxxx-xx
-ga_domain: huangxuan.me
+ga_track_id: "G-76TSQVKZQH" # Format: UA-xxxxxx-xx
+ga_domain: tanhuawanrenmi.github.io
 
 # Sidebar settings
 sidebar: true # whether or not using Sidebar.
