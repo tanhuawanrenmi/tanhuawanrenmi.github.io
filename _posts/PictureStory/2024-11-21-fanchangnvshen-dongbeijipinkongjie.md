@@ -15,12 +15,6 @@ tags:
 
 ## 第1季
 
-影片开始二狗就搂着妹子 出现在了镜头上妹子专心看手机 而二狗已经在脱她衣服
-![](https://pj.oz0ays.app/tupian/forum/202411/17/105652aa2pskpk2abcff5f.gif)
-
-在摸索了半天后 也是终于解开了内衣的扣子由妹子手一弄 把奶罩脱下
-![](https://pj.oz0ays.app/tupian/forum/202411/17/105653ewuw39p8q893wpqw.gif)
-
 妹子弄完手机就想去洗澡 ，二狗不让妹子一口东北嗓音 ：“不洗澡这样多尴尬啊 干嘛呢”二狗见状也不拦着 原地尴尬地笑
 ![](https://pj.oz0ays.app/tupian/forum/202411/17/105656lcfwl6wxqlu3c325.gif)
 
