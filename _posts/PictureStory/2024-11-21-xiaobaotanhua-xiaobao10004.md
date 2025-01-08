@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#小宝10004】小宝5000重金，约战清纯平面模特"
+title:        "【小宝探花】【图文故事】【#小宝10004】小宝5000重金，约战清纯平面模特"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#十字莲花妹】第1季"
+title:        "【七天探花|文轩探花】【图文故事】【#十字莲花妹】第1季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
@@ -27,7 +27,7 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144650gu2smvmv3i234rz2.gif)
 
 七天也不知道 在哪里嘀咕了啥惹得莲花妹 是笑呵呵的 
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144651beq7mrder7m8err8.gif)
 
 七天开玩笑：“我都碰完你了 我要是不要你 叫你回去 你会不会伤心”莲花妹：“会呀” 
@@ -40,15 +40,15 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144656l50ub5os8x3wa78o.gif)
 
 七天 嚼着口香糖 静静地望着莲花妹莲花妹突然对着丝袜说：“可以穿丝袜 但是不能撕，撕了我就要光腿回去了”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144659m9p2e8ec279vezp4.gif)
 
 莲花妹突然看到 玉溪：“你是北方的 你为什么抽玉溪啊？”七天回应道：“玉溪从我们老家那边出名的”然后莲花妹 就着 玉溪 一顿掰扯（好几分钟）
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144707vouowknoogowsubj.gif)
 
 七天拿着钱 还在说着玉溪的事莲花妹小手一伸 ：“给我吧”七天望着钱：“它好？”， 莲花妹接过手说道：“我还得数一下”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144723ccb0bm00t85z101c.gif)
 
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144716h00sn9j9su1oxanu.gif)
@@ -84,7 +84,7 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144914j4trojky2i4j5jp4.gif)
 
 莲花妹 自述 ：“我很像个充气娃娃”七天没有搭理 自顾自地吃着奶子 （确实有一股 充气娃娃的模样，莲花妹不说 我还没发现 ）
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/144921epwy44jymbuw4zb4.gif)
 
 吃够了的七天 将莲花妹 一把揽到自己身上仔细地抚摸着 这顺滑的大腿 
@@ -121,22 +121,22 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145039kjh6g8l651bfuzly.gif)
 
 细细地品尝着 莲花妹每一处皮肤想要吃奶，莲花妹也是贴心地拉开衣服 让他吃
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145054ne3zuiei6wtuikuw.gif)
 
 吃完奶再往上当然是亲嘴啦七天直接 一口啃住嘴巴，不松口 就是一顿猛亲莲花妹惊呼：“天啊”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145101fih9226e96eenhn1.gif)
 
 亲够了的七天 起身望着莲花妹 嘲讽道：“我是天下第一骚 你跟我骚”莲花妹小手 撸着鸡儿 起身问道：“要亲亲它吗？”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145107fa1k7akda0dard7q.gif)
 
 莲花妹往嘴里不知弄了啥 不知名液体 ，就准备过来口交 
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145114b6f1thftfe6y1hdz.gif)
 
 蹲到七天面前，灵动的舌头在 鸡儿的龟头上挑逗
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145121lyg808dyr22e4zrr.gif)
 
 挑逗完 全身，在将肉棒含入口中伸出小手在根部 辅助运动 提升快感 
@@ -155,11 +155,11 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145159rzkiwab71n2obl1t.gif)
 
 七天想要自己捅一捅，先是确认幅度 看莲花妹 接不接受确认适应后，加快速度 
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145207mcycpwpjzy0cypoj.gif)
 
 最后还是莲花妹 高速口交后，突然一下满的深喉惹的七天 弯下了腰 惊呼：“又爽 又痛”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145215agdgur6xcgxu252r.gif)
 
 七天享受够了服务 ，又想着自己 把玩莲花妹的身子了拉下衣服吃吃奶，在伸出小手 在莲花妹下面 把玩 
@@ -169,7 +169,7 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145235naanhlbblz28l7he.gif)
 
 七天：“看着你才更有感觉”莲花妹被舔着舔着， 小腿突然夹住 七天的头
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145241tnlabr3y8l66atgl.gif)
 
 莲花妹被看的害羞：“不要看着我好吗？”七天不搭理她 继续一边舔一边看 
@@ -182,14 +182,14 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145301gbaa96ror97qztgb.gif)
 
 玩爽了的七天 ：“来 戴套”莲花妹 念道：“你那个太大了 我感觉套太小了”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145307ceseqv55se0prlyd.gif)
 
 莲花妹仔仔细细认认真真地 将套子戴好手上的油 拿起一旁的纸巾 抹干净 
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145312irxoprrypdpl6zpl.gif)
 
 七天指挥 传教士位，莲花妹：“好的”七天：“我的女神”莲花妹姿势摆好，腿伸直 将丝袜穿好
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145326chth0pqp717t1qc7.gif)
 
 七天也不急着插手握着鸡儿 在洞口面前蹭啊蹭 蹭啊蹭 
@@ -199,22 +199,22 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145337tcfz7cpziz87fnv7.gif)
 
 亲够了的七天才慢慢的开始动胯，一下一下地用鸡巴 塞满莲花妹的下面
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145348af0kxxoqkofx893i.gif)
 
 换了个方向 ，莲花妹以为是后入撅好了屁股然而七天不是想玩 后入 ，而是“火车便当” 
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145358ef73ee33lee8b2pa.gif)
 
 七天抱起莲花妹 嘱咐道：“我动”就开始展示起了 火车便当
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145404se55f5mr7vd11o7c.gif)
 
 肏够了后，将莲花妹慢慢地抱回床上继续 传教士位的插入
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145420vhh060a0cd00t63e.gif)
 
 莲花妹侧着 展示美腿七天捞起一条 放在自己肩膀上
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145427jk56kkfse5rbvs6i.gif)
 
 莲花妹双腿合并，七天高速冲刺一阵在停下的那一刻，莲花妹直呼：“天啊” 
@@ -230,25 +230,25 @@ tags:
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145505njxj1j2n0v7nng0s.gif)
 
 动没一会儿，莲花妹就趴下了身子七天会意 由自己 接替动
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145517h8v0dp5ve8g1a1rp.gif)
 
 莲花妹调整姿势，找到适合自己的角度
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145521pntp2ylx9t23l3lp.gif)
 
 使出自己的外号由来“莲花坐” 
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145526lrwlncvrxxenrjn6.gif)
 
 莲花妹以为玩一下图个乐就可以了谁知 七天 ：“是就这样 刚刚的姿势很好”莲花妹只能继续骑，但是自己的腿 已经翘不起来了
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145536he0xxgtxbzyhuouh.gif)
 
 七天自己也是 在体力的最后时刻冲刺了一段时间 
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145543xrl26bhbu44buapv.gif)
 
 最后不行了 只能躺在床上 莲花妹 暗示这个姿势：“好深啊”
- 
+
 ![](https://jx.lwo7bv.app/tupian/forum/202409/10/145551ubg8ggjcuf388gfg.gif)
 
 在骑了一会儿后莲花妹突然停止 提醒：“你的时间到了” 

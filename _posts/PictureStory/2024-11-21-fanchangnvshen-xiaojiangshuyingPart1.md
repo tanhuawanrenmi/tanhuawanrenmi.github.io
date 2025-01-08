@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#小江疏影】第1季"
+title:        "【鸭哥探花|文轩探花】【图文故事】【#小江疏影】第1季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

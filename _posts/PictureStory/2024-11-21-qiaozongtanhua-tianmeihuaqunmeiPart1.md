@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#甜美花裙妹】第1季"
+title:        "【待】【乔总探花】【图文故事】【#甜美花裙妹】第1季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

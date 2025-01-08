@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#午夜斑马裙】第2季"
+title:        "【午夜探花|小宝探花】【图文故事】【#午夜斑马裙】第2季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

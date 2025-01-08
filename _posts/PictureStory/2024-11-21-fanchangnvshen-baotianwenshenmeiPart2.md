@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#宝天纹身妹】第2季"
+title:        "【小宝探花|七天探花】【图文故事】【#宝天纹身妹】第2季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

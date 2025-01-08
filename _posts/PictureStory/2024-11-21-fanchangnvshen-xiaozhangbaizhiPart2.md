@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#小张柏芝】第2季"
+title:        "【小宝探花|二哥探花】【图文故事】【#小张柏芝】第2季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

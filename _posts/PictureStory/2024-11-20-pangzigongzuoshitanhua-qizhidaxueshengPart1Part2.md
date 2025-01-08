@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#气质大学生】"
+title:        "【待】【胖子工作室探花】【图文故事】【#气质大学生】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

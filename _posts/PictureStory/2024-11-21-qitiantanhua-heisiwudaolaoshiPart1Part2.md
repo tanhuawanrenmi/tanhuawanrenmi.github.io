@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#黑丝舞蹈老师】第1、2季"
+title:        "【七天探花】【图文故事】【#黑丝舞蹈老师】第1、2季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

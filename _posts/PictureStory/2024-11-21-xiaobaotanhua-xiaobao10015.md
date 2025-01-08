@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#小宝10015】白衣气质少妇，表面端庄? 实则极度反差"
+title:        "【小宝探花】【图文故事】【#小宝10015】白衣气质少妇，表面端庄? 实则极度反差"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

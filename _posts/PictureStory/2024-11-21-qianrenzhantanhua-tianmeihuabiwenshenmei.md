@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【图文故事】【#甜美花臂纹身妹】第2季"
+title:        "【千人斩探花】【图文故事】【#甜美花臂纹身妹】第2季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
