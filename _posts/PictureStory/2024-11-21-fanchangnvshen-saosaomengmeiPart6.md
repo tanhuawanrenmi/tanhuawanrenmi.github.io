@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【待】【千人斩探花|七天探花】【图文故事】【#骚骚萌妹】第6季"
+title:        "【千人斩探花|七天探花】【图文故事】【#骚骚萌妹】第6季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
