@@ -198,9 +198,6 @@ tags:
 最后还得是9总 自己来压在身上干 
 ![](https://t.tmh7.app/tupian/forum/202411/29/012145fa22hj5fhegfnzjy.gif)
 
-爽不爽咱们不知道但这弹性应该很不错，毕竟弹的这么高 
-![](https://t.tmh7.app/tupian/forum/202411/29/012150g0djvkcmyqkcmrk0.gif)
-
 后背不得劲换回正面搞，还是要妹子帮着对准 
 ![](https://t.tmh7.app/tupian/forum/202411/29/012206fovkrerkxqwrfh1q.gif)
 
