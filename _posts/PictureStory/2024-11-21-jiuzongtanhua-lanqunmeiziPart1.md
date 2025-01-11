@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【待】【九总探花】【图文故事】【#蓝裙妹子】第1季"
+title:        "【九总探花】【图文故事】【#蓝裙妹子】第1季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
