@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【待】【小马探花】【图文故事】【#神似刘浩存】第4季"
+title:        "【小马探花】【图文故事】【#神似刘浩存】第4季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
