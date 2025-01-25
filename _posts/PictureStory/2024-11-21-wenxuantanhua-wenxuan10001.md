@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【------------】【文轩探花】【图文故事】【#文轩10001】"
+title:        "【------------】【文轩探花】【图文故事】【#文轩10002】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true

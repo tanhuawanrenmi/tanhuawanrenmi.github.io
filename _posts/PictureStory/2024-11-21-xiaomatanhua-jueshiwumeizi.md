@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【--------------】【小马探花】【图文故事】【#爵士舞妹子】"
+title:        "【小马探花】【图文故事】【#爵士舞妹子】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
