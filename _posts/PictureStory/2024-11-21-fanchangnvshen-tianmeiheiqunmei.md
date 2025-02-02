@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【--------------】【七天探花|赵总探花】【图文故事】【#甜美黑裙妹】"
+title:        "【七天探花|赵总探花】【图文故事】【#甜美黑裙妹】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
