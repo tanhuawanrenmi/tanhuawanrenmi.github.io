@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【---------------------】【李寻欢】【图文故事】【#大学生校花】"
+title:        "【李寻欢】【图文故事】【#大学生校花】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
