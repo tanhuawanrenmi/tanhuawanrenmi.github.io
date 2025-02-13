@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【--------------】【七天探花】【图文故事】【#甜美牛仔裤】Part2Part3"
+title:        "【七天探花】【图文故事】【#甜美牛仔裤】Part2Part3"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
