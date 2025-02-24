@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【待】【七天探花】【图文故事】【#白丝萝莉双马尾】"
+title:        "【七天探花】【图文故事】【#白丝萝莉双马尾】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
