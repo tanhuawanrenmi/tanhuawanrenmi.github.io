@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【-----------------】【沈先生探花】【图文故事】【#清纯嫩妹】"
+title:        "【沈先生探花】【图文故事】【#清纯嫩妹】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
