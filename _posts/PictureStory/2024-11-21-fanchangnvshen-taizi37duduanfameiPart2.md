@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【待】【太子探花|37度探花】【图文故事】【#太子37度短发妹】第2季"
+title:        "【太子探花|37度探花】【图文故事】【#太子37度短发妹】第2季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
