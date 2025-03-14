@@ -1,11 +1,11 @@
 ---
 layout:       post
-title:        "【赵总探花】【图文故事】【#高颜超嗲妹】"第1、2季
+title:        "【赵总探花|小严探花】【图文故事】【#高颜超嗲妹】"第1、2季
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
 tags:
-    - 赵总探花
+    - 返场女神
     - 图文故事
 ---
 
