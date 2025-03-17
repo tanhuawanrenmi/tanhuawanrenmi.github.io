@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【---------------】【千人斩探花】【图文故事】【#00后小姐姐】第1季"
+title:        "【千人斩探花】【图文故事】【#00后小姐姐】第1季"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
