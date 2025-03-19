@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【---------------------】【赵总探花】【图文故事】【#甜美西装妹】"
+title:        "【赵总探花】【图文故事】【#甜美西装妹】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
