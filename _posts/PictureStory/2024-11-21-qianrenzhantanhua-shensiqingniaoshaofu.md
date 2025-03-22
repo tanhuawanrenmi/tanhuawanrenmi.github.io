@@ -1,6 +1,6 @@
 ---
 layout:       post
-title:        "【待】【千人斩探花】【图文故事】【#神似青鸟少妇】"
+title:        "【千人斩探花】【图文故事】【#神似青鸟少妇】"
 author:       "国产和他的朋友们"
 header-style: text
 catalog:      true
