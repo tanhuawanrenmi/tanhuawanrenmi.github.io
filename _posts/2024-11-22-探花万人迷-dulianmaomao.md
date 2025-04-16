@@ -358,3 +358,43 @@ tags:
         </div>
     </div>
 </div>
+
+<div style="display: flex; justify-content: center;">
+    <div style="position: relative; width: 48%; margin-right: 1%;">
+        <img src="https://tanhuawanrenmigroup.top/dulianmaomao/dulianmaomao10047.jpg" style="width: 100%;"/>
+        <div style="position: absolute; top: 0; left: 0; width: 100%; text-align: center; background-color: rgba(255, 255, 255, 0.7); font-size: 14px;">
+            #dulianmaomao10047
+        </div>
+    </div>
+	<div style="position: relative; width: 48%;">
+        <img src="https://tanhuawanrenmigroup.top/dulianmaomao/dulianmaomao10048.jpg" style="width: 100%;"/>
+        <div style="position: absolute; top: 0; left: 0; width: 100%; text-align: center; background-color: rgba(255, 255, 255, 0.7); font-size: 14px;">
+            #dulianmaomao10048
+        </div>
+    </div>
+</div>
+
+<div style="display: flex; justify-content: center;">
+    <div style="position: relative; width: 48%; margin-right: 1%;">
+        <img src="https://tanhuawanrenmigroup.top/dulianmaomao/dulianmaomao10049.jpg" style="width: 100%;"/>
+        <div style="position: absolute; top: 0; left: 0; width: 100%; text-align: center; background-color: rgba(255, 255, 255, 0.7); font-size: 14px;">
+            #dulianmaomao10049
+        </div>
+    </div>
+	<div style="position: relative; width: 48%;">
+        <img src="https://tanhuawanrenmigroup.top/dulianmaomao/dulianmaomao10050.jpg" style="width: 100%;"/>
+        <div style="position: absolute; top: 0; left: 0; width: 100%; text-align: center; background-color: rgba(255, 255, 255, 0.7); font-size: 14px;">
+            #dulianmaomao10050
+        </div>
+    </div>
+</div>
+
+<div style="display: flex; justify-content: center;">
+    <div style="position: relative; width: 48%; margin-right: 1%;">
+        <img src="https://tanhuawanrenmigroup.top/dulianmaomao/dulianmaomao10051.jpg" style="width: 100%;"/>
+        <div style="position: absolute; top: 0; left: 0; width: 100%; text-align: center; background-color: rgba(255, 255, 255, 0.7); font-size: 14px;">
+            #dulianmaomao10051
+        </div>
+    </div>
+
+</div>
